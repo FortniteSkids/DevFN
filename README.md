@@ -6,5 +6,4 @@ and we can POSSIBLY Talk something out.
 
 Leaked by: FortniteSkids (https://github.com/FortniteSkids) :trollface:<br><br>
 
-Please do not fall for skids like these, We are trying our best to delete most skids on the platform. This is the same guy
-who made LunarFN which can be found at https://github.com/FortniteSkids/LunarFN
+Please do not fall for skids like these, We are trying our best to delete most skids on the platform.
